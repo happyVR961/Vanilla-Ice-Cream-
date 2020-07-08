@@ -1,0 +1,1 @@
+This recipe explains how to create vanilla ice cream from scratch. It requires you to use 5 steps along with 4 ingredients. 
